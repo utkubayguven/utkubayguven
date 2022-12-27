@@ -1,5 +1,5 @@
 # 💫 About Me:
-👯 I am studying at Marmara University Computer Engineering.<br>
+👯 I am studying at Marmara University Computer Engineering(English).<br>
 
 
 ## 🌐 Socials:
